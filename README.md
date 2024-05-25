@@ -17,3 +17,6 @@ https://youtu.be/tbbXDlDpyQQ?si=QTIm2JZxAvj7BAMM
 https://youtu.be/g9va548SeSM?si=2IOfhk2XR1w6QKja
 https://youtu.be/P9O1SZbWR1Q?si=VvWr10GP1ZOgebvZ
 https://youtu.be/tQY-2sK36b8?si=3guP48ADVhS7DVlR
+
+
+Я от думаю може це все в окремі розділи винести? Дуже багато щоб на головну сторінку ставити.
