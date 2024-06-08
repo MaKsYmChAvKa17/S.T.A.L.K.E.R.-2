@@ -24,3 +24,4 @@ https://youtu.be/tQY-2sK36b8?si=3guP48ADVhS7DVlR
 
 
 https://www.figma.com/design/5zhUHAt8jm7HgQIpNwWZcW/M2L4_shop_0_1700708414?node-id=0-1&t=As3l43YVoMNoJvNS-1
+https://youtu.be/OVkvCYXSfKM?si=PTg0Kz3BVZYgHCEF
